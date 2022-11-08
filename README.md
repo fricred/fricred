@@ -15,7 +15,7 @@
 - ❓ Ask me about anything related to Full stack and related technologies  
   
 
-- ⚡ Fun fact: I a goth person 🦇🦇  
+- ⚡ Fun fact: I am goth person 🦇🦇  
   
 
 <br/>  
